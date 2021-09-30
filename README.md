@@ -1,1 +1,1 @@
-# WEC-group-2-Dynamic-controllers-
+# WEC-group-1 and 2-
